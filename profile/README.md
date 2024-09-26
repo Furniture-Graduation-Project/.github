@@ -1,5 +1,5 @@
 # 💫 Về chúng tôi:
-🔭 Chúng tôi hiện đang làm việc tại Trường Cao đẳng FPT Polytechnic<br>🤝 Chúng tôi đang tìm kiếm sự giúp đỡ từ Thầy Hoàng<br>🌱 Chúng tôi hiện đang học Khóa tốt nghiệp SU24<br>💬 Hãy hỏi tôi qua email tuanndph33203@gmail.com<br>⚡ Sự thật thú vị là không có gì thú vị
+🔭 Chúng tôi hiện đang làm việc tại Trường Cao đẳng FPT Polytechnic<br>🤝 Chúng tôi đang tìm kiếm sự giúp đỡ từ Thầy Hoàng<br>🌱 Chúng tôi hiện đang học Khóa tốt nghiệp SU24<br>💬 Hãy hỏi tôi qua email tuanndph33203@fpt.edu.vn<br>⚡ Sự thật thú vị là không có gì thú vị
 
 
 ## 🌐 Kết nối xã hội:
